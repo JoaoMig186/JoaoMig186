@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JoaoMig186
 - 👀 I’m interested in web development!
-- 🌱 I’m currently cursing Software Engine.
+- 🌱 I’m currently coursing Software Engine.
 - 💞️ I’m looking to collaborate in many things!
 - 📫 How to reach me: Email - joaomiguelscrs@gmail.com and my profile on LinkdIn https://www.linkedin.com/in/jo%C3%A3o-miguel-de-souza-cruz-ramos-dos-santos-751a64227/
 
